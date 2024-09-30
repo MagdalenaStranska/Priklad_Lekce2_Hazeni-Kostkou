@@ -1,0 +1,1 @@
+# Priklad_Lekce2_Hazeni-Kostkou
